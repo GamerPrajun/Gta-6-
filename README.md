@@ -7,3 +7,9 @@ So let's start with Day 1
 * Total - Rs 1400
 
 Meet you at Day 2, Bye :)
+
+* Day 2 - May 10 Saturday
+* I got the github student pack.
+* I made accounts on upwork, fiverr and selected a profession, will work on it from tomorrow.
+* I learned a little about figma and creating designs.
+* Total - Rs 1400 // No change :( 
