@@ -1,3 +1,4 @@
+
 Hello World ! I am making this repo to track my progress. 
 I will be trying to earn 1 lakh the following year. I guess you already know the reason why.
 
@@ -18,4 +19,8 @@ Meet you at Day 2, Bye :)
 * I tried to get citizenship today but couldn't.
 * I created my first design in figma and also learned about lovable ai.
 * I tried my best at upgrading the freelancing accounts, still no clients.
+* Total - Rs 1400 // No change :(
+
+* Day 4 - May 12 Monday
+* Nothing just nothing !
 * Total - Rs 1400 // No change :(
