@@ -24,3 +24,8 @@ Meet you at Day 2, Bye :)
 * Day 4 - May 12 Monday
 * Nothing just nothing !
 * Total - Rs 1400 // No change :(
+
+* Day 5 - May 13 Tuesday
+* Got application for citizenship. Will try to get it tomorrow.
+* Did usual tryhackme rooms.
+* Total - Rs 1400 // No change :(
