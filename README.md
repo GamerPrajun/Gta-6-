@@ -35,3 +35,10 @@ Meet you at Day 2, Bye :)
 * Trying to make a roblox game as I think it will be a nice way to earn some 💰💰.
 * 1 Week full time roblox game maker, I will try to finish the first game in 3 days and rest for marketing and getting 💰💰.
 * Total - Rs 1400 // When will it go up :(
+
+* Day 7 - May 15 Thursday
+* Wow it has been a week.
+* Got a sim card, and cover for citizenship.
+* Made progress on the roblox game.
+* Created a profile on fiverr for roblox game development.
+* Total - Rs 1000 // How is it less ?!?! :(
