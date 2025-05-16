@@ -42,3 +42,8 @@ Meet you at Day 2, Bye :)
 * Made progress on the roblox game.
 * Created a profile on fiverr for roblox game development.
 * Total - Rs 1000 // How is it less ?!?! :(
+
+* Day 8 - May 16 Friday
+* Did usual tryhackme.
+* Fiverr new gig.
+* Total - Rs 1100 // Increased :)
