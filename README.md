@@ -47,3 +47,12 @@ Meet you at Day 2, Bye :)
 * Did usual tryhackme.
 * Fiverr new gig.
 * Total - Rs 1100 // Increased :)
+
+* Day 9 - May 17 Saturday
+* I forgot to add this day.
+* Total - Rs 1100
+
+* Day 10 - May 18 Sunday
+* Experience gained I guess.
+* Grandmother gave me Rs 500.
+* Total - Rs 1600 // Improvement :)
