@@ -56,3 +56,9 @@ Meet you at Day 2, Bye :)
 * Experience gained I guess.
 * Grandmother gave me Rs 500.
 * Total - Rs 1600 // Improvement :)
+
+* Day 11 - May 19 Monday
+* Did nothing absolute nothing.
+* Starting to question, is this even possible? Can we do it?
+* I hope we can I don't wanna dissapoint you future self.
+* Total - Rs 1600
