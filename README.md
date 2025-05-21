@@ -62,3 +62,11 @@ Meet you at Day 2, Bye :)
 * Starting to question, is this even possible? Can we do it?
 * I hope we can I don't wanna dissapoint you future self.
 * Total - Rs 1600
+
+Day 12 - May 20 Tuesday
+* Nope
+* Total - Rs 1600
+
+Day 13 - May 21 Wednesday
+* Nope
+* Total - Rs 1600
